@@ -39,3 +39,4 @@ For the submission, please pick at least one challenge.
 - 3 Bronzes value $200 for each
 
 Spores has the right to use all the submitted codes without any consent from the authors. All the rules are subject to change by the organizer without any notice.
+Join Discord discussion: https://discord.gg/MNSDPTtMqN
